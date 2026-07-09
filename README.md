@@ -12,4 +12,4 @@ SEO agency from Lviv, Ukraine.
 
 ---
 
-*Lviv, Ukraine - smuga.com.ua*
+*Lviv, Ukraine - [smuga.com.ua](https://smuga.com.ua)*
